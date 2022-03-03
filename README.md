@@ -1,2 +1,0 @@
-# supritzy
-Pungmu
